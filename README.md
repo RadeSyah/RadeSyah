@@ -12,8 +12,10 @@ You can click the Preview link to take a look at your changes.
 @RadenSyah / @RadeSyah
 
 Menanamkan pondasi keluarga SnackVideoFamily yang kuat agar bersatu kompak saling dukung saling support demi kesuksesan karya-karya pembuat VIDEO CONTENT CREATOR dan HOST LIVE STREAMING dan merekrutnya bergabung.
-*DAFTAR
+*DAFTAR :
+
 *Nama :
+
 *Email :
 
 https://s.snackvideo.com/ojnddXxs

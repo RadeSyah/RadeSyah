@@ -8,4 +8,6 @@
 RadenSyah/RadenSyah is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+https://github.com/RadeSyah
+https://gravatar.com/radensyahlovermanagement80
 https://ppg.kwai-pro.com/doodle/SihvRXvO.html?webview=yoda&share_item_type=jimu_SihvRXvO
